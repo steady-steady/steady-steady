@@ -1,4 +1,5 @@
-![9F9778E4-FA51-40F9-9ACA-1DB1848FC013](https://github.com/user-attachments/assets/6c952928-3ad0-42e4-ac91-56db8d769cf4)
+
+![B688A014-26D6-49AA-8184-64E0D5D64D5C](https://github.com/user-attachments/assets/29e6aed9-9e69-4966-bae3-4ddcab0b0238)
 
 <!--
 **supremeleaderrrr/supremeleaderrrr** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
